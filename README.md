@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Nightingale1513
-- 👀 I’m interested in Aviation and C++
+- 👀 I’m interested in Aviation 
 - 🌱 I’m currently learning nothing
-- 💞️ I’m looking to collaborate on Making A game
-- 📫 How to reach me pls dont
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me:discord nightingale1315
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm a Useless Failure
 
